@@ -39,4 +39,4 @@ Ingredients required for red chutney:
 8-10 shallots / one small onion
 4-5 cloves of garlic
 A small piece of tamarind
-2 tbsp grated coconut(optional)
+2 tbsp grated coconut
